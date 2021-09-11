@@ -4,6 +4,9 @@
 - 💞️ I’m looking to collaborate with blockchain developers. 
 - 📫 How to reach me
 Email: ddragonard0@gmail.com 
+
 Telegram: https://t.me/partymafiaplus
+
 Twitter: https://mobile.twitter.com/ddragonard
+
 Devpot: https://devpost.com/ddragonard0
