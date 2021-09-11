@@ -9,6 +9,6 @@ Telegram: https://t.me/partymafiaplus
 
 Twitter: https://mobile.twitter.com/ddragonard
 
-Devpot: https://devpost.com/ddragonard0
+Devpot: https://devpost.com/ddragonard
 
 LinkedIn: https://www.linkedin.com/in/ddragonard-ddragon-62a5421b3
