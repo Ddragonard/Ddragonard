@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Solidity. 
 - 💞️ I’m looking to collaborate with blockchain developers. 
 - 📫 How to reach me
-Email: ddragonard0@gmail.com 
+Email: ddragonard@protonmail.com 
 
 Telegram: https://t.me/partymafiaplus
 
