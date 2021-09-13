@@ -5,7 +5,7 @@
 - 📫 How to reach me
 Email: ddragonard@protonmail.com 
 
-Telegram: https://t.me/partymafiaplus
+Telegram: https://t.me/ddragonard0
 
 Twitter: https://mobile.twitter.com/ddragonard
 
