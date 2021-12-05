@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Ddragonard
 - 👀 I’m interested in Blockchain, Defi, NFT Web3
-- 🌱 I’m currently learning Solidity. 
+- 🌱 I’m currently learning trading. 
 - 💞️ I’m looking to collaborate with blockchain developers. 
 - 📫 How to reach me
 Email: ddragonard@protonmail.com 
